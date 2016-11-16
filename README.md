@@ -8,7 +8,6 @@ neoliberalism https://www.google.com/amp/s/amp.theguardian.com/commentisfree/201
 women http://www.slate.com/blogs/xx_factor/2016/11/09/white_women_sold_out_the_sisterhood_and_the_world_by_voting_for_trump.html
 
 democrat elitism http://m.huffpost.com/ca/entry/12884168
-sexism
 
 trumps wealth or sexism, not sure http://www.cbc.ca/beta/news/world/malcolm-gladwell-us-election-the-national-trump-clinton-1.3838449
 
@@ -35,3 +34,4 @@ latinos https://www.google.ca/amp/s/amp.theguardian.com/us-news/2016/nov/09/lati
 
 geographic income inequality
 https://www.theguardian.com/commentisfree/2016/nov/16/globalization-trump-inequality-thomas-piketty
+
